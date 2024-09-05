@@ -6,5 +6,5 @@
 2. [Twitter](https://x.com/ItsAlphaTech)
 3. [Facebook](https://www.facebook.com/VladBudnitski)
 4. [LinkedIn](https://linkedin.com/in/alphatech/)
-5. [Youtube](www.youtube.com/@alphatech9278)
-6. [Medium](medium.com/@vladitech)
+5. [Youtube](https://www.youtube.com/@alphatech9278)
+6. [Medium](https://medium.com/@vladitech)
